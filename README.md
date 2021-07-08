@@ -1,9 +1,6 @@
-### Hello 👋
+###  Hello 👋
 
-
-**lizagomes/lizagomes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+*italicized text* My name is 
 
 Email: lizagomeslgc@gmail.com
 
