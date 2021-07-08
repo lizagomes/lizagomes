@@ -9,4 +9,4 @@
 ### Como você pode me econtrar? 
 Email: lizagomeslgc@gmail.com
 
-[Instagram:](https://https://www.instagram.com/lizagcosta/)
+**Instagram: @lizagcosta** 
