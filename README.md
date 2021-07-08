@@ -1,6 +1,6 @@
 ###  Hello 👋
 
-*italicized text* My name is 
+*italicized text My name is*
 
 Email: lizagomeslgc@gmail.com
 
