@@ -17,5 +17,10 @@
 - Ler livros
 -  Assistir filmes 
 
-![AirBrush_20210426195849](https://user-images.githubusercontent.com/85706728/124979741-d2268780-e009-11eb-9031-8e2911ebce8f.jpg)
+
+
+
+
+![AirBrush_20210426195849](https://user-images.githubusercontent.com/85706728/124980508-d901ca00-e00a-11eb-8938-e9f3983bf2df.jpg)
+
 
