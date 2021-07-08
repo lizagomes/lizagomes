@@ -18,9 +18,9 @@
 -  Assistir filmes 
 
 
+### Uma fato extremamente aleatório:
 
+*"Você sabia que 0.0012% da população em Distrito Federal chamam-se Liza?* 
 
-
-![AirBrush_20210426195849](https://user-images.githubusercontent.com/85706728/124980508-d901ca00-e00a-11eb-8938-e9f3983bf2df.jpg)
-
-
+### Uma frase motivacional:
+[title](https://https://www.pensador.com/frase/NjY5NjM5)
