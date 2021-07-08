@@ -1,6 +1,9 @@
 ###  Hello 👋
 
-*italicized text My name is*
+*Meu nome é Liza e sou estudante do ensino médio*
+
+
+
 
 Email: lizagomeslgc@gmail.com
 
