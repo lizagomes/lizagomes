@@ -11,3 +11,10 @@
 **Email: lizagomeslgc@gmail.com**
 
 **Instagram: @lizagcosta** 
+
+### Alguns Hobbies:
+- Viajar 
+- Ler livros
+-  Assistir filmes 
+
+
