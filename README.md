@@ -12,7 +12,7 @@
 
 **Instagram: @lizagcosta** 
 
-### Alguns Hobbies:
+### Some Hobbies:
 - Travel
 - Read
 - Watch movies 
