@@ -1,26 +1,21 @@
-###  Hello!! 👋
+#### HI there!
 
-*Meu nome é Liza e sou estudante do ensino médio no Colégio Técnico Industrial de Santa Maria.*
+*My name's Liza Gomes and I study in Colégio Técnico Industrial de Santa Maria.*
 
-### O que eu estudo?
-*Além de cursar o ensino médio, também sou estudante de informática para internet na mesma escola.* 
+### What's I study?
+* I'm in third year of high school, besides that I'm doing computer technician for Internet.  
 
 
-### Como você pode me encontrar? 
+### Where can you find me?
 
 **Email: lizagomeslgc@gmail.com**
 
 **Instagram: @lizagcosta** 
 
 ### Alguns Hobbies:
-- Viajar 
-- Ler livros
-- Assistir filmes 
+- Travel
+- Read
+- Watch movies 
 
-
-### Um fato extremamente aleatório:
-
-*"Você sabia que 0.0012% da população em Distrito Federal chamam-se Liza?*" 
-
-### Uma frase motivacional:
+#### A motivational phrase: 
 [https://www.pensador.com/frase/NjY5NjM5/](https://www.pensador.com/frase/NjY5NjM5/)
