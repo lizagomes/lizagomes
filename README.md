@@ -1,4 +1,4 @@
-#### HI there!
+#### Hi there!
 
 *My name's Liza Gomes and I study in Colégio Técnico Industrial de Santa Maria.*
 
